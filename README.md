@@ -1,0 +1,1 @@
+Susirgau, praleidau paskaita, paskui jungiausi ne is namu, labai atsilikau, nepavyko prisivyti, todel viska tiesiog stebejau ir stengiausi ismokti. Atsiprasau. Teks sunkiau padirbeti per kontrolini :)
